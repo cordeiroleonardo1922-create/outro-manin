@@ -1,1 +1,1 @@
-# outro-manin
+# com-info-2.0
